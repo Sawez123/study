@@ -1,0 +1,1 @@
+# I made ths website to help students studying 10th standard maharashtra board
